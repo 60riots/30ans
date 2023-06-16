@@ -1,1 +1,1 @@
-Du 19 au 21, on part en Vendée pour se balader à la plage et ça va être chouette ! 
+Du 19 au 21, on part à Quiberon pour faire une virée en Jet-ski dans la baie jusqu'à l'Île-d'Houat et ça va être super chouette ! 
